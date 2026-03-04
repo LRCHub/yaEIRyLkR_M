@@ -1,0 +1,68 @@
+# 春猿火 – 昼夜逆転
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+昼？夜？今What time?
+2時〜4時からMy time
+昼？夜？今What time?
+おやすみするSunrise
+昼？夜？今What time?
+2時〜4時からMy time
+昼？夜？今What time?
+おやすみするSunrise
+人が引いちゃう
+昼と夜がReverse
+みんなSleep now
+起きて遅めディナー
+これは何飯？頭冴えるお茶菓子
+深夜にOHAYO
+朝まで歌おう
+夜更かしっていうか
+1日の始まり
+画面に集まり
+止まらないおしゃべり
+街は静かに
+グラス一杯の水割り
+家は明るい
+浸れ自分だけの世界に
+昼？夜？今What time?
+2時〜4時からMy time
+昼？夜？今What time?
+おやすみするSunrise
+昼？夜？今What time?
+2時〜4時からMy time
+昼？夜？今What time?
+おやすみするSunrise
+Yeah Uh...
+W hat time? W hat time?
+Yeah Uh...
+W hat time? W hat time?
+本日も誘惑に負けたNight
+目が冴えて1ミリも眠くない
+煌々とつけるLight
+昔よくママとFight
+「早く寝なさい」 今となって知る愛
+深夜にいつも返信 I’m sorry
+みんなにかける心配 Don’t worry
+ちゃんとしたい でも続きが見たい
+ああ今日も夜は長い
+昼？夜？今What time?
+2時〜4時からMy time
+昼？夜？今What time?
+おやすみするSunrise
+昼？夜？今What time?
+2時〜4時からMy time
+昼？夜？今What time?
+おやすみするSunrise
+Tick-tack Tick-tack
+It’s 2 in the morning
+Tick-tack Tick-tack
+It’s 3 in the morning
+Tick-tack Tick-tack
+It’s 4 in the morning
+Tick-tack Tick-tack
+Tick-tack Tick-tack
+Tick-tack Tick-tack
+Good night
+```
